@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning AWS and GCP
 - 🤔 I’m looking for help with React server component
 - 💬 Ask me about Anything
-- 📫 How to reach me: [Gmail](sonusheohar15@gmail.com)
+- 📫 How to reach me: [whatsapp](9711923647)
 - 😄 Pronouns: ...He/Him
 - ⚡ Fun fact: ...I am half finnish
 
